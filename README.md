@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @frankly-alien
-- 👀 I’m interested in science fiction, art, weird music and writing. I'm watching Mob Psycho 100 right now and its awesome.
+- 👀 I’m interested in science fiction, art, weird music and creative writing. 
 - 🌱 I’m currently learning information technology at university and teaching myself Italian.
 - 💞️ I’m looking to collaborate on code and projects, but probably with my classmates.
 - 📫 You can reach out to me on here (i think, i just got here) or on Discord at chemical.overreaction
